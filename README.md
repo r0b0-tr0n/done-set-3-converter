@@ -1,1 +1,1 @@
-Please see [this reddit post](https://www.reddit.com/r/trimui/comments/1t2qfk9/done_set_3_converter_renames_folders_converts/) for more information.
+Please see [this reddit post](https://www.reddit.com/r/trimui/comments/1t2qfk9/comment/okknais/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) for more information.
